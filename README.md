@@ -5,3 +5,5 @@ sometimes i cuddle some1 when im not feeling great
 
 and always iwec
 
+mostly offtab or afk , w2i
+
