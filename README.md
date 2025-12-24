@@ -1,4 +1,4 @@
-## I prefer be cuddled than cuddling someone. 👋 c*h enc , always welcomed, unless im w some1
+## I prefer cuddling someone that be cuddled. 👋 c*h enc , always welcomed, unless im w some1
 
 
 and always iwec
